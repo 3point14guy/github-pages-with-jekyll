@@ -1,3 +1,7 @@
-# Welcome to my blog
+#Github Comes to Asheville
 
-I'm glad you are here. I plan to talk about ...
+##Github's International Traing Team merges with the Collider
+
+
+
+
